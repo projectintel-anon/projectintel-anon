@@ -9,4 +9,4 @@
 
 🎼 Pop, trap-hop and fluid drums are my favourite genres of music.
 
-🥋 I am a [streamer](twitch.tv/mehrfromnoclipse), competitive player (member of team SITH) and software developer in my free time. 
+🥋 I am a [streamer](twitch.tv/mehriscrazy), competitive player (ex-founder of Lucid) and software developer in my free time. 
